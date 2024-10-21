@@ -38,4 +38,13 @@ Website: https://sodo696z.com
 Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodo_casino #số_đỏ_casino
-
+https://www.pinterest.com/pin/1051801688021473405
+https://500px.com/photo/1102468625/z5949255253117_4a509b01524b2cfa04b8911f2947a545-by-adelle-schank
+https://sodo696z.blogspot.com/2024/10/a-ga-casino-sodo-san-choi-ga-truc-tuyen.html
+https://sites.google.com/view/sodo696z/home/13
+http://so697z.xim.tv/tin-tuc/da-ga-casino-sodo-san-choi-da-ga-truc-tuyen-hap-dan-new83408.html
+https://x.com/sodo696z8566/status/1848032885955326283
+https://www.diigo.com/item/note/b7g42/uths?k=3596025ee888d935bb702750d22a27cc
+https://band.us/band/96481707/post/14
+https://sodo696z.bcz.com/2024/10/20/gioi-thieu-ve-da-ga-casino-sodo/
+https://glose.com/u/sodo696z
